@@ -1,0 +1,1 @@
+Delibero eligendi decens uterque vero vergo considero tendo.
